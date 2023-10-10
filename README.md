@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **gmikioas@gmail.com**
 
-- 📄 Know about my experiences [https://peach-daisy-22.tiiny.site](https://peach-daisy-22.tiiny.site)
+- 📄 Know about my experiences [Resume.pdf](https://peach-daisy-22.tiiny.site)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
